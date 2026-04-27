@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with aura ascension rare Script, the #1 Script. Includes infinite resources and invisibility for
 
 
 
